@@ -1,0 +1,1 @@
+# Extrator-de-palavras-2C-JOSE-GOMES-2025
